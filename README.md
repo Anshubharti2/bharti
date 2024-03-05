@@ -1,0 +1,2 @@
+# bharti
+ethical earning
